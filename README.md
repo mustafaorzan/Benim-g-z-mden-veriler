@@ -1,0 +1,1 @@
+# Benim-g-z-mden-veriler
